@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+### I like many things such as people, basketball, philosophical conversations, logic, my bed. 
 <!--
 **AlexisP1909/AlexisP1909** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
